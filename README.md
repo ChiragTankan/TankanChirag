@@ -1,7 +1,5 @@
 ### Hi there 👋
-I AM CHIRAG TANKAN 
-
-**Tankanchirag/TankanChirag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I AM CHIRAG TANKAN 😎😎
 
 Here are some ideas to get you started:
 
