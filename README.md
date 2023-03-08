@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about nothing
 - 📫 How to reach me: no where 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-https://media.tenor.com/RdZqvbPdVzsAAAAM/holi-gifkaro.gif 
+- ⚡ Fun fact: ...https://media.tenor.com/RdZqvbPdVzsAAAAM/holi-gifkaro.gif 
