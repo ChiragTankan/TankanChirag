@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: github 
 - 😄 Pronouns: hindi
 - ⚡ Fun fact: portfolio
-- Project of the week:portfolio website
+- Project of the week:portfolio website**DONE AT WEDNESDAY
